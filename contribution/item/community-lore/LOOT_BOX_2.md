@@ -1,0 +1,1 @@
+The faded logo of a defunct company can be seen on the container. Before the national freeways were destroyed by corprate warfare you could order anything from the net with a click of a button. From canned pizza to orbital lasers they would gaurentee same day shipping.
